@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Mohit Bhagat, Living In Ludhiana, Punjab, INDIA.
+- 👀 I’m interested in Video Editing, 3D 2D Modeling & Animation. 
+- 🌱 I’m currently learning C++ & Python in Coding, And Blender In 3D Modeling and Animations and OpenToons for 2D Animaitions.
+- 📫 How to reach me: Just main me at vegasmediaworks@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Love ChatGPT and AI
